@@ -1,3 +1,3 @@
-Open for Projects, Contracts, Part-time and Full-time jobs! Send me a DM on Twitter or an Email.
+Available for Project Collaborations, Contracts, Part-time, and Full-time Opportunities! Feel free to reach out via Twitter DM or email.
 <br/>
 <a href="twitter.com/amirsa_12">twitter</a>
