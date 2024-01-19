@@ -1,4 +1,4 @@
-Author of <a href="https://www.npmjs.com/package/qwik-slider">qwik-slider</a>
+Author of <a href="https://www.npmjs.com/package/qwik-slider">qwik-slider</a> 
 <br/>
 Available for Project Collaborations, Contracts, Part-time, and Full-time Opportunities! Feel free to reach out via Twitter DM or email.
 <br/>
